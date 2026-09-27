@@ -1,0 +1,2 @@
+# premium-espalier-trellis-001-espalier-trellis-building-wi
+Tired of winging it with your espalier designs, only to end up with tangled branches and uneven growth? This Notion template turns your trellis building and wire training into a structured, stress-free craft.  Transform your backyard into a living sculpture gallery. The Espalier Trellis Building &amp; Wire Train Craft Studio gives you a single hub to p
